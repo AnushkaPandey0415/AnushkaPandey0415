@@ -1,7 +1,7 @@
 - 🐥 Hi, I’m Anushka here ^_^
 - 🐥 I’m interested in Physics, Computer tech and Psychology
 - 🐥 I’m currently working on machine learning and mern projects
-- 🐥 You can reach me @AnushkaPandey0415
+- 🐥 You can reach me pandeyanushka0415@gmail.com
 - 🐥 Pronouns: she/her
 
 <!---
