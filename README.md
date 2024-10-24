@@ -1,5 +1,5 @@
 # 💫 About Me:
-🐥 Hi, I’m Anushka here ^_^<br>🐥 I’m interested in Physics, Computer tech and Psychology<br>🐥 I’m currently working on machine learning and mern projects<br>🐥 You can reach me at pandeyanushka0415@gmail.com<br>🐥 Pronouns: she/her
+🐥 Hi, I’m Anushka ^_^<br>🐥 I’m interested in Physics, Computer tech and Psychology<br>🐥 I’m currently working on machine learning and mern projects<br>🐥 You can reach me at pandeyanushka0415@gmail.com<br>🐥 Pronouns: she/her
 
 
 ## 🌐 Socials:
